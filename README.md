@@ -1,2 +1,6 @@
 ﻿# todoApp_RN
-https://drive.google.com/file/d/1EA8YImEphqWRGrsBdASFfz4XQ0yF1K07/view?usp=sharing
+
+https://user-images.githubusercontent.com/109054934/202849862-cecec0eb-c066-47e4-92d6-b383e081e428.mp4
+
+
+
